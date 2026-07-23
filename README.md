@@ -11,7 +11,6 @@
     ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
     </pre>
     <br/>
-    <br/>
     <img width=600 src="assets/sources/pinkdaisies.png"/>    
 </div>
 
